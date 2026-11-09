@@ -1,4 +1,4 @@
-# ¡Hola! Soy [Tu Nombre y Apellido] 👋
+# ¡Hola! Soy Eduardo Ruben Elias Hernandez Gonzalez 👋
 
 ## 🚀 Sobre Mí
 
